@@ -61,7 +61,7 @@ Planned projects include:
 ## Contact
 Email: jahazisudi@gmail.com  
 GitHub: https://github.com/izahaj  
-LinkedIn: (to be updated)  
+LinkedIn: Sudi Jahazi  
 Location: Nairobi, Kenya  
 
 Open to internships, industrial attachment, and learning opportunities.
